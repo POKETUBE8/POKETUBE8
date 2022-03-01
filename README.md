@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @POKETUBE8
+- 👋 Hi, I’m BEAST
 - 👀 I’m interested in ANIME, WEB DEV, GAME DEV, GRAPHIC DESIGNING and 2D ANIMATIONS 
 - 🌱 I’m currently learning WEB DEV and 2d ANIMATIONS 
 - 💞️ I’m looking to MENTORSHIP on WEB DEV 
